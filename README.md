@@ -1,1 +1,5 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/portoflosangeles-public/blob/main/LAInGate.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/portoflosangeles-public/blob/main/LAOutGate.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/portoflosangeles-public/blob/main/PCTMaingate2.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/portoflosangeles-public/blob/main/PCTmaingate.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/portoflosangeles-public/blob/main/Webcam1.jpg)
